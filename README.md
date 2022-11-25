@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning DEVO Platform
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @th3c0rt3x (twitter, gmail.com) discord : th3c0rt3x#2933
-CUSTOMIZING MY PROFILE
 
 
 
